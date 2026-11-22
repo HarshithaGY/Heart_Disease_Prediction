@@ -189,7 +189,6 @@ BE – Computer Science and Engineering
 
 GitHub: [HarshithaGY](https://github.com/HarshithaGY)
 
-LinkedIn: [Connect with me](https://linkedin.com/in/harshitha-gy-6414bb392)
 
 ---
 
